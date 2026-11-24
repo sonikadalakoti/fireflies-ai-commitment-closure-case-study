@@ -65,4 +65,6 @@ It does not include:
 
 **Sonika Dalakoti**
 
+AI Product Management | Product Strategy | User Research | Experimentation | GTM
+
 [LinkedIn](https://www.linkedin.com/in/sonika-dalakoti/)
